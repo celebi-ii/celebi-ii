@@ -2,7 +2,7 @@
 
 ![](https://c.tenor.com/2tmFzIpCJTYAAAAd/shinji-shinji-ikari.gif)
 
-why the beatles cartoon versions kinda hot though...
+why the beatles cartoon versions kinda hot though😈
 ![image](https://user-images.githubusercontent.com/111396851/185261462-e9813d61-29b0-4246-a072-18c8a032ac69.png)
 ![image](https://user-images.githubusercontent.com/111396851/185261598-0005341d-eef1-4407-9b9b-36ad761075cd.png)
 ![image](https://user-images.githubusercontent.com/111396851/185261644-86febc8b-c3f7-45e6-9ddd-566229d56c53.png)
