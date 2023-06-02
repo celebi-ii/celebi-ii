@@ -1,4 +1,4 @@
-[click here to see my rentry!!!! lol](https://rentry.co/camillee)
+[click here to see my rentry!!!! lol](https://rentry.co/2xi8p)
 
 ![](https://c.tenor.com/2tmFzIpCJTYAAAAd/shinji-shinji-ikari.gif)
 
